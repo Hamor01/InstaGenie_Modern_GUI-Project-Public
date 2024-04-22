@@ -7,4 +7,4 @@ Unleash Your Instagram Potential with your Personalised InstaGenie ❤
 # Modern Sign Up UI 😎
 ![SignUp UI](https://user-images.githubusercontent.com/111262410/216835434-95dd07cc-00e2-4d8f-853e-731be1164dc4.png)
 
-You can get me directly via email : haronhumbira@gmail.com OR whatsapp +254704511445 for great works like this.
+# You can get me directly via email : haronhumbira@gmail.com OR whatsapp +254704511445 for great works like this.
